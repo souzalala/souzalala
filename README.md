@@ -1,5 +1,5 @@
 - 👋 óla, meu nome é larissa 
-- meu email é larissa.silveirade.souza@escola
+- meu email é larissa.silveirade.souza@escola.pr.gov.br
 - 🌱 I’m currently learning ...
 - 💞️ 
 - 📫 
